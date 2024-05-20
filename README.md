@@ -1,1 +1,1 @@
-The Industrial Revolution led to the rise of urbanization, with millions of people migrating from rural areas to cities in search of employment in factories and other industrial enterprises.
+The Treaty of Westphalia, signed in 1648, marked the end of the Thirty Years' War in Europe and established the principle of state sovereignty, laying the groundwork for modern international relations.
