@@ -1,1 +1,1 @@
-The rise of economic liberalism in the 18th century, championed by thinkers like Adam Smith, advocated for free markets, limited government intervention, and individual liberty, shaping modern economic theory and policy.
+The economic theories of mercantilism dominated European economic thought in the 17th century, advocating for state intervention in the economy to promote national wealth and power.
