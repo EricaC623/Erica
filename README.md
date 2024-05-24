@@ -1,1 +1,1 @@
-The economic theories of mercantilism dominated European economic thought in the 17th century, advocating for state intervention in the economy to promote national wealth and power.
+The expansion of international trade in the 19th century was facilitated by innovations in transportation, including steamships, railways, and canals, which reduced costs and increased efficiency.
