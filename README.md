@@ -1,1 +1,1 @@
-The mechanization of agriculture in the 19th century, including the invention of the reaper and other farm machinery, increased agricultural productivity and led to the consolidation of landholdings.
+The practice of mercantilist policies, such as tariffs, trade monopolies, and subsidies, aimed to protect domestic industries and promote exports while limiting imports.
