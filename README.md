@@ -1,1 +1,1 @@
-The Industrial Revolution led to the rise of urbanization, with millions of people migrating from rural areas to cities in search of employment in factories and other industrial enterprises.
+The economic theories of classical economics, espoused by thinkers like Adam Smith and David Ricardo, laid the foundation for modern economic thought and policy, emphasizing free markets, competition, and self-regulation.
