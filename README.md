@@ -1,1 +1,1 @@
-The economic theories of classical economics, espoused by thinkers like Adam Smith and David Ricardo, laid the foundation for modern economic thought and policy, emphasizing free markets, competition, and self-regulation.
+The rise of laissez-faire capitalism in the 19th century advocated for limited government intervention in the economy, free markets, and individual liberty, shaping economic policy and thought.
