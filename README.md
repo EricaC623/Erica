@@ -1,1 +1,1 @@
-The rise of laissez-faire capitalism in the 19th century advocated for limited government intervention in the economy, free markets, and individual liberty, shaping economic policy and thought.
+The expansion of international trade in the 19th century was facilitated by innovations in transportation, including steamships, railways, and canals, which reduced costs and increased efficiency.
