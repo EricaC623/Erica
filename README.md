@@ -1,1 +1,1 @@
-The global economy of the 19th century was increasingly interconnected through trade networks, financial markets, and the exchange of goods, capital, and labor across borders.
+The Atlantic slave trade flourished in the 17th century, with millions of Africans forcibly transported to the Americas to work on plantations, mines, and other labor-intensive industries.
