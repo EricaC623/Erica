@@ -1,1 +1,1 @@
-The global economy of the 19th century was characterized by the expansion of colonial empires, with European powers competing for territorial control, resources, and markets in Africa, Asia, and the Americas.
+The telegraph, invented in the early 19th century, revolutionized communication by enabling rapid transmission of information over long distances, facilitating business transactions and market integration.
