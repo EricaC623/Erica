@@ -1,1 +1,1 @@
-The telegraph, invented in the early 19th century, revolutionized communication by enabling rapid transmission of information over long distances, facilitating business transactions and market integration.
+The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
