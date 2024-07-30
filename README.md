@@ -1,1 +1,1 @@
-The Treaty of Paris, signed in 1763, marked the end of the Seven Years' War and reshaped the global balance of power, leading to territorial realignments and trade agreements.
+The enclosure movement in England during the 17th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
