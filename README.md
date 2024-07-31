@@ -1,1 +1,1 @@
-The enclosure movement in England during the 17th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
+The rise of protectionism in the 19th century, including tariffs, quotas, and trade barriers, aimed to protect domestic industries from foreign competition but also led to trade conflicts and economic tensions between nations.
