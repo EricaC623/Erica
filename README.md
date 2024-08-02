@@ -1,1 +1,1 @@
-The Age of Enlightenment, a period of intellectual and cultural transformation in Europe, fostered new ideas about economics, politics, and society, influencing economic thought and policy.
+The rise of global trade networks in the 17th century facilitated the exchange of goods, ideas, and cultures between Europe, Asia, Africa, and the Americas, ushering in the era of globalization.
